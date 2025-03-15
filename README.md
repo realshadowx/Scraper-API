@@ -6,7 +6,7 @@ Whether you're a developer, business owner, or marketer, Scraper API offers powe
 
 But why pay full price when you can save big with exclusive [Scraper API coupon codes](https://www.scraperapi.com/pricing?fp_ref=shadow)?
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXciSVbU599fBI4izEc5uLhDPYdQyY0aS6ffj3zfSeoRjRrSJLwvnxZw1_xUN4aa3PKRa5Ve8m9N-Uc2SLVA86CU_-bpxIJ2ySNZ5b9IAkkvNPvxOlDoDJR69zpGpDaIppo3WjhYNw?key=7Ob8e1iFMokHLITDAxDQSKDc)](https://www.scraperapi.com/pricing?fp_ref=shadow)
+[![Discount button](https://github.com/user-attachments/assets/5d91a19f-be88-4402-9138-d4edee5b73b9)](https://www.scraperapi.com/pricing?fp_ref=shadow)
 
 ## Top Scraper API Coupon Codes
 
@@ -47,7 +47,7 @@ Applicable Products/Services: All subscription plans (monthly-to-yearly switch o
 Expiry Date: Expires in 45 days
 How to Use the Code: Enter this code when upgrading from a monthly plan to an annual subscription. It’s an easy way to save on long-term usage!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXczhyYkKP1INLutS4nowTDa_Hq11P0HgJd58aMd0LAJvvJ6mtXTsYjK0fL-JQnqM7Zk_p97V1RqrBScv5SL7k08obv8RAGxGHQOk6GIypSVYncKLD8OcR8d8Vv8fdpgcJ9DKKUEaA?key=7Ob8e1iFMokHLITDAxDQSKDc)](https://www.scraperapi.com/pricing?fp_ref=shadow)
+[![Discount button](https://github.com/user-attachments/assets/5d91a19f-be88-4402-9138-d4edee5b73b9)](https://www.scraperapi.com/pricing?fp_ref=shadow)
 
 ## How to Redeem Your Scraper API Coupon Code?
 
@@ -69,7 +69,7 @@ Once you’ve selected your plan, proceed to checkout. In the payment section, l
 
 Once the code is applied, you’ll see the discount reflected in the total amount. Review your details, and when you’re ready, complete the purchase to enjoy your savings!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcLSf47p4O2jCpUjPjUABLZdaZeqF6RELBpD15kEINuB52U0VW5Uh-T5I9TGmQNzFWRwNTYpwpz4C0GH-DsEnG11xwXuMZp-UzQTzXmKgOxqaI82vnFV_YtlPYKC8sfgCiJLqp1NQ?key=7Ob8e1iFMokHLITDAxDQSKDc)](https://www.scraperapi.com/pricing?fp_ref=shadow)
+[![Discount button](https://github.com/user-attachments/assets/5d91a19f-be88-4402-9138-d4edee5b73b9)](https://www.scraperapi.com/pricing?fp_ref=shadow)
 
 ## Pricing Information
 
@@ -87,7 +87,7 @@ Scraper API offers several subscription tiers to suit different needs, from smal
 
 Scraper API's tiered pricing means you can scale as needed, and with the right coupon, you’ll get excellent value for your money.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc2OuuDT3YweVlRWwcp4UwReMX_OAmyXhBTR26G4JlHmLJuVZ2E96OVZeHzYZI4NResvn9I6SGst07Mhbey95_6wNXaIJbqXLQbQtzvYAPGRRV-KwqJ-X_RX9p9DVKxygdtzhWRow?key=7Ob8e1iFMokHLITDAxDQSKDc)](https://www.scraperapi.com/pricing?fp_ref=shadow)
+[![Discount button](https://github.com/user-attachments/assets/5d91a19f-be88-4402-9138-d4edee5b73b9)](https://www.scraperapi.com/pricing?fp_ref=shadow)
 
 ## About Scraper API
 
