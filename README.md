@@ -1,5 +1,7 @@
 # Scraper API Coupons 2025 | Get 50% Off Discount Code 🔥
 
+Hello folks, Amir here.
+
 Whether you're a developer, business owner, or marketer, Scraper API offers powerful web scraping tools that make it easy to gather data from websites.
 
 But why pay full price when you can save big with exclusive [Scraper API coupon codes](https://www.scraperapi.com/pricing?fp_ref=shadow)?
